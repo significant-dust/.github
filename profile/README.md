@@ -1,4 +1,4 @@
-# Specks of Dust
+# Significant Dust
 
 A global field of shared meaning, revealed by the voices of those who choose to speak.
 
